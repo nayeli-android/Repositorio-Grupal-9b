@@ -3,7 +3,7 @@ practica 1
 
 Practica  ximena sanchez marquez 28/05/2026
 
-
+Nayeli Ortiz Dimas > 2330202
 
 **Datos**
 Salomon Larios Nazar -> Matricula 2330189
